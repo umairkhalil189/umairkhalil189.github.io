@@ -1,3 +1,7 @@
+PORTFOLIO WEBSITE IN PROGRESS 
+
+TEMPLATE DETAILS WHERE IT'S TAKEN FROM:
+
 Thanks for downloading this template!
 
 Template Name: Laura
